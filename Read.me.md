@@ -1,0 +1,2 @@
+Aku capek
+bye
